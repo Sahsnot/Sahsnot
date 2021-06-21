@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sahsnot
+- 👀 I’m interested in concept art and everything around creating and managing games
+- 🌱 I’m currently learning all around my interests
+- 💞️ Right now I am trying to learn the basics and orient myself
+- 📫 I can be reached via mail: david.kaul.work@gmail.com
